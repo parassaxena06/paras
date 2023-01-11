@@ -5,9 +5,9 @@
 
 - 🌱 I’m currently learning **Data Structure & Algorithms**
 
-- 📫 How to reach me **saxenaparas06@gmail.com**
+- 📫 How to reach me  **saxenaparas06@gmail.com**
 
-- 📄 Here is my resume - (https://docs.google.com/document/d/1eAnFY5Q8KBH1CKQttvYK6lcq2EXdEPIT9Yp98Y5TM8s/edit)
+- 📄 Here is my resume
 
 - ⚡ Fun fact **I am Funny😊**
 
