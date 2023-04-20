@@ -7,7 +7,7 @@
 
 - 📫 How to reach me  **saxenaparas06@gmail.com**
 
-- 📄 Here is my resume – (https://drive.google.com/drive/u/0/my-drive)
+- 📄 Here is my resume – (https://docs.google.com/document/d/1y1vbcgyMmuRVO-imJB5BTvXXabjQMXyRQBN4H_e3l6o/edit)
 
 - ⚡ Fun fact **I am Funny😊**
 
